@@ -15,6 +15,8 @@ Step 3: You'd then be in a position to locate your Free Fire ID underneath your 
 
 Note: If the free fire hack id login program does not open, you can try to disable the antivirus program.
 
+Password:2022
+
 Enjoy!
 
 
