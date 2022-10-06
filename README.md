@@ -24,3 +24,8 @@ Enjoy!
 
 
 Warning: This program has been created for information and security purposes. cannot be used for illegal activities!
+
+Tags: free fire hack id login, free fire hack, garena free fire hack, free fire hack diamond, free fire hack headshot, free fire hack app,
+free fire hack version, free fire hack link, free fire hack software, free fire hacker app, free fire hack account, free fire hack app 100 working,
+free fire hack app download for android, free fire hack apk download 2022, free fire hack aimbot, free fire hack apk 2022, free fire hack anti ban, free fire hack aimbot apk, free fire hack app headshot download.
+
